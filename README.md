@@ -25,7 +25,7 @@
 ## 🌟 Let's Connect!
 
 - 🤝 I'm always open to new opportunities, collaborations, and ideas.
-- 📫 Feel free to reach out to me or explore my repositories.
+- You can reach me out on ahmedhabib101902@gmail.com and ahh.edit.s.real@gmail.com 📫 Feel free to reach out to me or explore my repositories.
 - Let's create something amazing together!
 
 ---
